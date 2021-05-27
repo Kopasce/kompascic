@@ -1,0 +1,2 @@
+# kompascic
+mocjjd jjj
